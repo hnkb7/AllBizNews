@@ -1,1 +1,1 @@
-# AllBizNews
+# AllBizNews.wordpress.com
